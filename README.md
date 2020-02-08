@@ -1,0 +1,2 @@
+# seattle-Auctioneer
+Patrick's high roller results stem from a combination of experience and several of his talents. Patrick has performed professionally as a comedian for over 20 years after starting out as an improvisational performer with several comedic improv troupes. Patrick was a member of Theatre Sports in Seattle &amp; also a traveling improv group called This Instant. As a comedian, Patrick has performed in 100's of comedy clubs all over the country. He has shared the stage with Dane Cook, Rosie O'Donnel, Drew Carey, &amp; many more professional comedians.
